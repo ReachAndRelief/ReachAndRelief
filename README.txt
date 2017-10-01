@@ -1,1 +1,0 @@
-Global Relief for Natural Diasters
